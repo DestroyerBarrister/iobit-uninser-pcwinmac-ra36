@@ -1,4 +1,4 @@
-# 
+# Premium IObit Uninstaller plugins para Mac OS | Gratuito IObit Uninstaller plugins para PC Windows. Con limpieza de archivos basura y automatización del sistema — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
